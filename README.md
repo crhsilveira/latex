@@ -12,4 +12,3 @@ crhsilveira@gmail.com
 
 @crhsilveira
 
-![descrição do GIF](link GIF do Tenor)
